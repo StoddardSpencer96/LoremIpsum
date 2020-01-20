@@ -10,3 +10,12 @@ Turducken ut et ball tip boudin. Ut picanha beef spare ribs t-bone rump. Ut boud
 In spare ribs velit, leberkas ground round tempor andouille labore. Velit mollit prosciutto beef jerky sed ground round ea laborum salami quis minim burgdoggen reprehenderit. Burgdoggen ex boudin esse, velit doner drumstick brisket adipisicing ea id shank reprehenderit cow in. Cow pancetta commodo buffalo strip steak. Quis dolore biltong bacon irure minim capicola commodo hamburger cupidatat rump andouille in. Pancetta velit nostrud meatball reprehenderit picanha shoulder. Proident rump velit, veniam ullamco shank sausage pork chop landjaeger boudin frankfurter pork loin.
 
 Duis sausage ea jowl doner exercitation. Picanha in beef ribs velit t-bone pancetta bacon enim. Pastrami spare ribs magna, occaecat beef ribs tri-tip bresaola salami eiusmod aute culpa sint. Cupim occaecat esse prosciutto tempor. Cupidatat chislic sausage turkey, sint anim meatball boudin tri-tip. Magna ex sint leberkas sausage. Anim meatball ex, in in aute andouille.
+
+
+Today, I want softness in our world... tranquility, quiet, peaceful. We'll just sort of slip in some clouds.
+
+Follow these angles. Get tough with it.
+
+I want to do something that's just a little bit different, and I think you'll find it's fun. Try not to kill it.
+
+Brush mix! This is the lazy man's way of painting.
